@@ -1,2 +1,1 @@
-![Image of Ohio State Logo](https://www.google.com/search?q=ohio+state+png+logo&tbm=isch&source=iu&ictx=1&fir=vJmt-PNyJXPGYM%253A%252CcXJ5CpybMd6kPM%252C_&usg=AI4_-kQoYGPvwTLT9R1TVgTPT9bUMKyDQA&sa=X&ved=2ahUKEwjbvfrw9YbfAhVOQq0KHfMFBioQ9QEwCXoECAEQFg#imgrc=vJmt-PNyJXPGYM:
-)
+![Image of Ohio State Logo](https://www.google.com/search?q=ohio+state+png+logo&tbm=isch&source=iu&ictx=1&fir=vJmt-PNyJXPGYM%253A%252CcXJ5CpybMd6kPM%252C_&usg=AI4_-kQoYGPvwTLT9R1TVgTPT9bUMKyDQA&sa=X&ved=2ahUKEwjbvfrw9YbfAhVOQq0KHfMFBioQ9QEwCXoECAEQFg#imgrc=vJmt-PNyJXPGYM:)
